@@ -1,5 +1,2 @@
-hi, plz read my straw ! my patreon acc link will be up soon it's just gone for a short while  ! (^_^) 
-i am mostly with friends or alone , i stay in the library alot. 
-most times im afk/offtab, so w2i even though i might reply really late or most times, not at all, just don't whisper me weird things if ur not a close friend of mine! 
-ask for inspo plz do not use my skin ideas or copy them if u didn't ask me first! you will be hidden permanently. 
-bye bye ! !  ≽^• ˕ • ྀི≼
+𝚑𝚒 ! 𝚛𝚋𝚢𝚒 . 𝚒 𝚊𝚖 𝚖𝚘𝚜𝚝𝚕𝚢 𝚜𝚎𝚎𝚗 𝚠𝚒𝚝𝚑 𝚏𝚛𝚒𝚎𝚗𝚍𝚜, 𝚘𝚛 𝚜𝚘𝚖𝚎𝚝𝚒𝚖𝚎𝚜 𝚊𝚕𝚘𝚗𝚎. 𝚒𝚏 𝚞 𝚠𝚊𝚗𝚗𝚊 𝚋𝚎 𝚖𝚢 𝚏𝚛𝚒𝚎𝚗𝚍 𝚙𝚕𝚣 𝚍𝚘𝚗'𝚝 𝚋𝚎 𝚊𝚏𝚛𝚊𝚒𝚍 𝚝𝚘 𝚒𝚗𝚝 𝚠𝚒𝚝𝚑 𝚖𝚎! 𝚠𝚑𝚒𝚜𝚙𝚎𝚛 𝚖𝚎 𝚒𝚏 𝚞 𝚠𝚊𝚗𝚗𝚊 𝚋𝚎 𝚏𝚛𝚒𝚎𝚗𝚍𝚜. 𝚒 𝚌𝚊𝚗 𝚋𝚎 𝚛𝚞𝚍𝚎 𝚒𝚏 𝚒 𝚐𝚎𝚝 𝚌𝚘𝚖𝚏𝚢 𝚠𝚒𝚝𝚑 𝚢𝚘𝚞. 𝚋𝚞𝚝 𝚔𝚎𝚎𝚙 𝚒𝚗 𝚖𝚒𝚗𝚍 𝚒 𝚍𝚘𝚗'𝚝 𝚖𝚎𝚊𝚗 𝚊𝚗𝚢𝚝𝚑𝚒𝚗𝚐 𝚒 𝚜𝚊𝚢 . 𝚊𝚗𝚍 𝚒𝚏 𝚞𝚛 𝚞𝚗𝚌𝚘𝚖𝚏𝚘𝚛𝚝𝚊𝚋𝚕𝚎 𝚠𝚒𝚝𝚑 𝚖𝚎 𝚍𝚘𝚗𝚝 𝚋𝚎 𝚊𝚏𝚛𝚊𝚒𝚍 𝚝𝚘 𝚕𝚖𝚔! 
+- 𝚠𝚒𝚝𝚑 𝚕𝚘𝚟𝚎, 𝚛𝚘𝚖𝚒 ♡ . 
